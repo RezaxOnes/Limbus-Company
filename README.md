@@ -11,7 +11,7 @@
 Đây là hướng dẫn tải Limbus-Company
 ....Coming Soon.....
 # Lời Nói Cuối Cùng
-Bạn hoàn toàn tự nguyện ủng hộ dự án bằng cách liên hệ với chủ dự án.
+Bạn hoàn toàn có thể tự nguyện ủng hộ dự án bằng cách liên hệ với chủ dự án.
 Email: RezaxOneslimited@gmail.com
 # Lần cuối được cập nhập
 Thứ 6, Ngày 9 Tháng 5 Năm 2025 ( Lúc 1:30 "UTC + 7")
